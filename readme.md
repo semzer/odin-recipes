@@ -1,1 +1,1 @@
-This project is about sussy amogus impostor
+This project contains sites about food recipes
